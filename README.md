@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Taniya
-- 👀 I’m interested in Weight Initialization Techniques in Neural Networks. 
 - 🌱 I’m currently learning Inferential Statistics as a part of my academia. I love to study Real analysis and Probability most. 
 - 📫 How to reach me email - taniyapolley.ind@gmail.com
 - 😄 Pronouns: SHE/ HER
