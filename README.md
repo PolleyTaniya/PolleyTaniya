@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Taniya
-- 🌱 I’m currently learning Inferential Statistics as a part of my academia. I love to study Real analysis and Probability most. 
+- 🌱 I’m currently learning Inferential Statistics as a part of my academia.  
 - 📫 How to reach me email - taniyapolley.ind@gmail.com
 - 😄 Pronouns: SHE/ HER
 
